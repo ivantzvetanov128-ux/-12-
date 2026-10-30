@@ -1,5 +1,3 @@
 
-**офис**
-
-
+**офис*
 [offoce](https://pcpartpicker.com/list/3wPgZQ)
